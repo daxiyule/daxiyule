@@ -1,20 +1,13 @@
-         您好，亚洲最专业老虎机官网：【www.daxi77.com】
-
-线下特邀： 
-            ★①存送：存20送28 优惠代码：20dx28 8倍水★★
-
-            ●○②存送：存50送58 优惠代码：50dx58 12倍水○●
-
-         ◆◇◆③存送：存80送88 优惠代码：80dx88 15倍水◆◇◆
-
-          ■□■□④存送：开户首存100%,最高赠送888  18杯水□■□■
-
-       ▲△▲△▲⑤存送：周首存120%，最高赠送5888  低流水，大额赠送！△▲△▲△
-
-〓〓〓〓〓〓无限存送：笔笔存送5%，最高上限8888   1杯水(秒杀同行业所有返水)〓〓〓〓〓〓
-
-    更有：每日疯狂【救援金10%】，疯狂【救济金】，【全民智勇大闯关】，【出款加送200%】，
-
-          【幸运注单】，【千倍百倍】
-
-                更多优惠请咨询在线客服！ 官网：【daxi77.com】  大喜娱乐！
+<table style="width:600px;">
+<tr>
+<td></td><td></td><td></td><td></td><td></td><td></td>
+</tr>
+<tr>
+<td colspan="5" style="color:#000000;">如果图片无法显示， 请点击这里查看<a href="http://jump.sinaapp.com/tdcz">http://jump.sinaapp.com/tdcz</a></td>
+<td style="text-align:right;"><a href="http://jump.sinaapp.com/tdcz">取消订阅</a></td>
+</tr>
+<tr>
+<td colspan="5" style="color:#000000;">申请地址：<a href="http://jump.sinaapp.com/tdcz" style="font-size:18px;">http://jump.sinaapp.com/tdcz</a></td>
+<td style="text-align:right;"><a href="http://jump.sinaapp.com/tdcz">取消订阅</a></td>
+</tr>
+</table>
